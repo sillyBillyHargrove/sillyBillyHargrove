@@ -10,4 +10,14 @@
 
 *some things i like are ; genesis (the band), peter gabriel, the beatles, elvis, michael jackson, animatronics, spirit halloween (i'm new to this fandom lol), webkinz, leave it to beaver, willy wonka, and stranger things. i also like werewolves, old halloween things, abandoned places, and urbex.*
 
-<img width="199" height="112" alt="tumblr_34ba71e181548c929eca07b0a5b6528f_37789025_250" src="https://github.com/user-attachments/assets/3c771047-3f6a-4143-acc8-2736a381f838" />
+
+<img width="1000" height="64" alt="tumblr_53216bac69cfa38a325e0fb18b2bba51_4e280ccc_1280" src="https://github.com/user-attachments/assets/ec4d837c-d6c7-4f2c-be46-a2dd57d42dbc" />
+
+
+*dni ; general dni criteria (racist, homophobia, ect.) glitch productions fandom (unless i already know you) , hh / hb fandom (again, unless i alr know you), doubles, forsaken (AGAIN, unless i already know you), thimbis (go away. seriously.). that's about all*
+
+
+<img width="1000" height="40" alt="tumblr_42baa49786d6e234ba2f53b3c9a02878_9d0cc997_1280" src="https://github.com/user-attachments/assets/436ceb74-cbee-4834-b22d-9e947a2a57e0" />
+
+
+*don't be scared to int! i love when people interact with me <3   make sure to check out my other links while you're here. bye bye!*
