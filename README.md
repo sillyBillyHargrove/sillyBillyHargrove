@@ -6,4 +6,4 @@ hi! my name's billy, and i'm a billy hargrove fictionkin. i go by he / him.
 
 just a heads up, i am very sensitive to my source (stranger things). talking about it is fine! but please ask to talk about it or if you're sending media from it. i don't take well to it showing up without warning. thank you!
 
-<img width="3000" height="120" alt="tumblr_162e609f3ae2ff3f4634f727efa43cbf_20dbd39f_2048" src="https://github.com/user-attachments/assets/9226686b-6bc2-469d-a7db-78abe0b92caf" />
+<img width="736" height="432" alt="tumblr_a5016fda5dc3534e9b74db65d9085342_bbd1831a_1280" src="https://github.com/user-attachments/assets/73491da7-f798-4364-b7a1-ba2d54f8653a" />
