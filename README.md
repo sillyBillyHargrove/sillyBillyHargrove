@@ -9,3 +9,5 @@
 
 
 *some things i like are ; genesis (the band), peter gabriel, the beatles, elvis, michael jackson, animatronics, spirit halloween (i'm new to this fandom lol), webkinz, leave it to beaver, willy wonka, and stranger things. i also like werewolves, old halloween things, abandoned places, and urbex.*
+
+<img width="199" height="112" alt="tumblr_34ba71e181548c929eca07b0a5b6528f_37789025_250" src="https://github.com/user-attachments/assets/3c771047-3f6a-4143-acc8-2736a381f838" />
