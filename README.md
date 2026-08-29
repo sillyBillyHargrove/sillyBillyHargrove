@@ -16,7 +16,7 @@
 　
 *dni ; general dni criteria (racist, homophobia, ect.) glitch productions fandom (unless i already know you) , hh / hb fandom (again, unless i alr know you), doubles, forsaken (AGAIN, unless i already know you), thimbis (go away. seriously.). that's about all*
 
-*thin ice ; homestuck fandom, undertale/deltarune (some of y'all are WILD), roblox fandom in general, other beatles fans (nothing personal, you guys just make me nervous LOL), ddlc, vocaloid/utau/entstars/whatever the fuck that shit is, then some more that i forgot LMAOAO*
+*thin ice ; homestuck fandom, undertale/deltarune (some of y'all are WILD), roblox fandom in general, other beatles fans (nothing personal, you guys just make me nervous LOL), ddlc, vocaloid/utau/entstars/whatever the fuck that shit is, soddiken, femtanyl, stomach book, then some more that i forgot LMAOAO*
 　
 <img width="1000" height="40" alt="tumblr_42baa49786d6e234ba2f53b3c9a02878_9d0cc997_1280" src="https://github.com/user-attachments/assets/436ceb74-cbee-4834-b22d-9e947a2a57e0" />
 
