@@ -8,7 +8,7 @@
 <img width="2048" height="171" alt="tumblr_cf80fab3a6c33a8318cd7aa74920a110_4d6302fc_2048" src="https://github.com/user-attachments/assets/34d78ab6-1d79-49a9-8a3f-d9b337f5950c" />
 
 　
-*some things i like are ; genesis (the band), peter gabriel, the beatles, elvis, michael jackson, animatronics, spirit halloween (i'm new to this fandom lol), webkinz, leave it to beaver, willy wonka, and stranger things. i also like werewolves, old halloween things, abandoned places, and urbex.*
+*some things i like are ; genesis (the band), peter gabriel, the beatles, elvis, michael jackson, animatronics, spirit halloween (i'm new to this fandom lol), webkinz, leave it to beaver, willy wonka, outfit7 (new to this fandom too....) and stranger things (i loove st.. drooling over st rn). i also like werewolves, old halloween things, abandoned places, and urbex (urbex my LOVE 🤤).*
 
 　
 <img width="1000" height="64" alt="tumblr_53216bac69cfa38a325e0fb18b2bba51_4e280ccc_1280" src="https://github.com/user-attachments/assets/ec4d837c-d6c7-4f2c-be46-a2dd57d42dbc" />
