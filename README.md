@@ -14,7 +14,7 @@
 <img width="1000" height="64" alt="tumblr_53216bac69cfa38a325e0fb18b2bba51_4e280ccc_1280" src="https://github.com/user-attachments/assets/ec4d837c-d6c7-4f2c-be46-a2dd57d42dbc" />
 
 　
-*dni ; general dni criteria (racist, homophobia, ect.) glitch productions fandom (unless i already know you) , hh / hb fandom (again, unless i alr know you), doubles, forsaken (AGAIN, unless i already know you), thimbis (go away. seriously.). that's about all*
+*dni ; general dni criteria (racist, homophobia, ect.) glitch productions fandom (unless i already know you) , hh / hb fandom (again, unless i alr know you), doubles (please block me if you see me. i want nothing to do with you, NEVER interact with me), forsaken (AGAIN, unless i already know you), thimbis (go away. seriously.). that's about all*
 
 *thin ice ; homestuck fandom, undertale/deltarune (some of y'all are WILD), roblox fandom in general, other beatles fans (nothing personal, you guys just make me nervous LOL), ddlc, vocaloid/utau/entstars/whatever the fuck that shit is, soddiken, femtanyl, stomach book, then some more that i forgot LMAOAO*
 
