@@ -16,7 +16,7 @@
 　
 *dni ; general dni criteria (racist, homophobia, ect.) glitch productions fandom (unless i already know you) , hh / hb fandom (again, unless i alr know you), doubles (please block me if you see me. thanks), forsaken (AGAIN, unless i already know you), thimbis (go away. seriously, i never want to see anything related to you ever again.). that's about all*
 
-*thin ice ; homestuck fandom, other beatles fans (nothing personal, you guys just make me nervous LOL), ddlc, soddiken, femtanyl, stomach book, "pt's official ___!" (some of ya'll are ok. the ok ones are cool asf!!!! but SOME of ya'll are pretentious, selfish assholes. hence, 'thin ice'.), then some more that i forgot LMAOAO*
+*thin ice ; homestuck fandom, other beatles fans (nothing personal, you guys just make me nervous LOL), ddlc, soddiken, femtanyl, stomach book, then some more that i forgot LMAOAO*
 
 *i'm not good with comforting. it's nothing with you, it's me. if you vent to me, don't expect much LOL.*
 
